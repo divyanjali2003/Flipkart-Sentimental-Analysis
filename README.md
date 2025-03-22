@@ -1,0 +1,5 @@
+![Home](https://github.com/user-attachments/assets/057e7b39-70e0-4a81-833d-cd17a5ebc681)
+![upload](https://github.com/user-attachments/assets/f252b309-c907-46dd-a8a0-693a39ff2758)
+![dataset](https://github.com/user-attachments/assets/1ac99a60-2629-4ab9-a527-f29a4097e469)
+![Distribution](https://github.com/user-attachments/assets/8dbde01f-f70f-4cc5-b151-6c6204bb7240)
+![output](https://github.com/user-attachments/assets/b46db533-8581-4f97-a2e7-d9ac9d7b5c60)
